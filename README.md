@@ -19,6 +19,6 @@ When I'm not coding, I'm probably out hiking or enjoying a nature walk, embracin
 
 ## 📫 How to Reach Me
 Feel free to connect with me for collaborations or just a chat about tech, hiking, or anything interesting.
-- **Email**: winfredkalondu@gmail.com
+- **Email**: winffredkalondu@gmail.com 
 - **LinkedIn**: www.linkedin.com/in/winfred-kalondu-0678b4207
 
